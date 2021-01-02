@@ -1,5 +1,5 @@
-On behalf of the entire team at the **Illinois Inclusive Curriculum Advisory Council** – the *Legacy Project, Equality Illinois, 
-Public Health Institute of Metropolitan Chicago*, and **Illinois Safe Schools Alliance** – you are invited to explore the new search portal 
+On behalf of the entire team at the **Illinois Inclusive Curriculum Advisory Council** – the **Legacy Project, Equality Illinois, 
+Public Health Institute of Metropolitan Chicago**, and **Illinois Safe Schools Alliance** – you are invited to explore the new search portal 
 for **LGBTQ-Inclusive Education tools**. 
 
 Lesbian, Gay, Bisexual, Transgender, and Queer people have made significant contributions to human history. Indeed, there is no aspect of 
