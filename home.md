@@ -7,3 +7,5 @@ humanity’s story that does not have an LGBTQ person attached to it in some way
 overlooked entirely – the impact they have had has been lasting and deserves exploration in the fullest, most honest way possible. 
 The new LGBTQ-Inclusive Curriculum Law, signed into law by Governor J.B. Pritzker in August 2019, offers an opportunity to take a 
 refreshingly new look at the subjects studied in every Illinois public school. **You and your students are in for an eye-opening treat...**
+
+Fredric test
