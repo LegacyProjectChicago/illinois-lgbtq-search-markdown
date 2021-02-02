@@ -1,4 +1,3 @@
-# HOW TO USE THE SEARCH PORTAL
 ##### Overview
   This portal has been created with you - __***the teacher!***__
   – in mind. Just click on any of the **Drop-Down Menu** options (left)
