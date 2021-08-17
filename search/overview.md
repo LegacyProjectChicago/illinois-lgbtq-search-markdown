@@ -5,4 +5,3 @@
   seek. Whether you are trying to meet the parameters of a particular
   Social Studies (e.g. civics, economics, geography, and history)
   **“Curriculum Code”**
-  <iframe src="https://player.vimeo.com/video/588425086?h=0e7fd87bc1&title=0&byline=0&portrait=0" width="640" height="360" frameborder="0" allow="autoplay; fullscreen; picture-in-picture" allowfullscreen></iframe>
